@@ -1,1 +1,1 @@
-# IMT2200-Benjamin-Gonzalez
+# Benjamin Ignacio Gonzalez
